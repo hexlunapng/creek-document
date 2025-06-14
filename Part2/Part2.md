@@ -4,7 +4,7 @@ proof of buying members
 ![members](https://github.com/hexlunapng/creek-document/blob/main/caption.gif?raw=true)
 
 proof of demoting 
-![demoting]https://github.com/hexlunapng/creek-document/blob/main/image%20(1).png?raw=true)
+![demoting](https://github.com/hexlunapng/creek-document/blob/main/image%20(1).png?raw=true)
 
 proof of skidding
 ![skidding](https://github.com/hexlunapng/creek-document/blob/main/image%20(2).png?raw=true)
