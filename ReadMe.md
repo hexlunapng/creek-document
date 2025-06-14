@@ -3,4 +3,4 @@ Revealed by former staff, devs, and even the ex-owner. The truth’s out—and i
 
 📩gmail me proof at  hex@corefn.xyz or discord xlnk
 
-https://github.com/hexlunapng/creek-document/blob/main/auticreek.png?raw=true
+https://github.com/hexlunapng/creek-document/blob/main/auticreek.png
