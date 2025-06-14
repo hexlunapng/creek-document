@@ -2,7 +2,7 @@
 
 ### 🚨 Creek Exposed  
 **Revealed by former staff, developers, and even the ex-owner.**  
-The truth’s out—and it’s not pretty.
+The truth’s out—and it’s not pretty the owner scamming and telling lies let's see what happens..
 
 📩 **Got proof or stories?**  
 Email: **hex@corefn.xyz**  
